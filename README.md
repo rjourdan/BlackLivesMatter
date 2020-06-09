@@ -1,6 +1,14 @@
 # Black Lives Matter
 
-Here is my modest contribution to the "Black Lives Matter movement". Here is a list of documents/videos/links for someone to get educated on Diversity, Torelance and understand that Black Lives really Matter.
+Here is my modest contribution to the "Black Lives Matter" movement. Here is a list of documents/videos/links for someone to get educated on Diversity, Torelance and understand that Black Lives really Matter.
+
+- [Black Lives Matter](#black-lives-matter)
+  - [More about the movement and why it is important](#more-about-the-movement-and-why-it-is-important)
+  - [for Parents & Kids](#for-parents--kids)
+    - [Books & Articles](#books--articles)
+    - [References](#references)
+    - [Videos](#videos)
+  - [Donations](#donations)
 
 ## More about the movement and why it is important
 
@@ -32,3 +40,7 @@ Here is my modest contribution to the "Black Lives Matter movement". Here is a l
 - [Black Lives Matter Instructional Library](https://docs.google.com/presentation/d/18pOK3roiwPQ9WF7D2wA0o7Ktr8KwAJeZfn-o6O8T__Y/mobilepresent?fbclid=IwAR0rfRMsiKVUqAB9YMSHpTzsKEl58rUaXRiwUGVvfgcyrOv0CbC-t8eTkwU&slide=id.g87f9732047_4_9)
 - [Why Black Lives Matter Now TedXYouth](https://www.youtube.com/watch?v=A7EZWBIPUUQ)
 - [CNN Sesame Street racism townhall](https://www.cnn.com/2020/06/06/app-news-section/cnn-sesame-street-race-town-hall-app-june-6-2020-app/index.html)
+
+## Donations
+
+You want to change the world and have an impact, you can start supporting some organizations:
