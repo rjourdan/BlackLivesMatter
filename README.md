@@ -7,6 +7,7 @@ Here is my modest contribution to the "Black Lives Matter movement". Here is a l
 ![Why Black Lives Matter](http://chainsawsuit.com/wp-content/uploads/2016/07/20160707_allhousesredux.png)
 
 - [How to argue against "All Lives Matter"](https://www.bustle.com/articles/171457-how-to-argue-against-saying-all-lives-matter-because-this-has-got-to-stop)
+- [Black Murder is normal](https://www.youtube.com/watch?v=1DxHL2i3cZo)
 
 ## for Parents & Kids
 
@@ -14,7 +15,7 @@ Here is my modest contribution to the "Black Lives Matter movement". Here is a l
 
 - [Understanding Implicit Bias](http://kirwaninstitute.osu.edu/research/understanding-implicit-bias/)
 - [Taking Black History Beyond February: 13 Picture Books and Young Adult Lit](https://colorfulpages.org/2020/03/16/taking-black-history-beyond-february-13-picture-books-and-young-adult-lit/)
-- [Your Kids Aren’t Too Young to Talk About Race: Resource Roundup”](https://www.prettygooddesign.org/blog/Blog%20Post%20Title%20One-5new4)
+- [Your Kids Aren’t Too Young to Talk About Race: Resource Roundup](https://www.prettygooddesign.org/blog/Blog%20Post%20Title%20One-5new4)
 - [15 books to help kids understand that Black Lives Matter](https://www.rebekahgienapp.com/black-lives-matter/)
 - [New York Times' Anti-Racism Book List](https://www.nytimes.com/2020/06/02/parenting/kids-books-racism-protest.html)
 - [Something Happened in Our Town](https://www.apa.org/pubs/magination/441B228)
