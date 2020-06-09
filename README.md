@@ -12,10 +12,12 @@ Here is my modest contribution to the "Black Lives Matter" movement. Here is a l
 
 ## More about the movement and why it is important
 
+- [Official Black Lives Matter website](https://blacklivesmatter.com)
+- [Black Murder is normal](https://www.youtube.com/watch?v=1DxHL2i3cZo)
 ![Why Black Lives Matter](http://chainsawsuit.com/wp-content/uploads/2016/07/20160707_allhousesredux.png)
 
 - [How to argue against "All Lives Matter"](https://www.bustle.com/articles/171457-how-to-argue-against-saying-all-lives-matter-because-this-has-got-to-stop)
-- [Black Murder is normal](https://www.youtube.com/watch?v=1DxHL2i3cZo)
+
 
 ## for Parents & Kids
 
@@ -44,3 +46,8 @@ Here is my modest contribution to the "Black Lives Matter" movement. Here is a l
 ## Donations
 
 You want to change the world and have an impact, you can start supporting some organizations:
+
+- [ACLU](https://www.aclu.org)
+- [Black Lives Matter](https://secure.actblue.com/donate/ms_blm_homepage_2019)
+- [Standing up for racial justice](https://www.showingupforracialjustice.org/donate-to-surj.html)
+- [The Equal Justice Initiative](https://support.eji.org/give/153413/#!/donation/checkout)
