@@ -5,7 +5,7 @@ Here is my modest contribution to the "Black Lives Matter" movement. Here is a l
 - [Black Lives Matter](#black-lives-matter)
   - [More about the movement and why it is important](#more-about-the-movement-and-why-it-is-important)
   - [for Parents & Kids](#for-parents--kids)
-    - [Books & Articles](#books--articles)
+    - [Books, Read aloud & Articles](#books-read-aloud--articles)
     - [References](#references)
     - [Videos](#videos)
   - [Donations](#donations)
@@ -20,9 +20,10 @@ Here is my modest contribution to the "Black Lives Matter" movement. Here is a l
 
 ## for Parents & Kids
 
-### Books & Articles
+### Books, Read aloud & Articles
 
 - [Black Lives Matter Instructional Library](https://docs.google.com/presentation/d/18pOK3roiwPQ9WF7D2wA0o7Ktr8KwAJeZfn-o6O8T__Y/mobilepresent?fbclid=IwAR0rfRMsiKVUqAB9YMSHpTzsKEl58rUaXRiwUGVvfgcyrOv0CbC-t8eTkwU&slide=id.g87f9732047_4_9)
+- [Sankofa Read aloud](https://www.youtube.com/channel/UCLBquMIehDL8Mv0ttSv6lzQ/featured)
 - [Understanding Implicit Bias](http://kirwaninstitute.osu.edu/research/understanding-implicit-bias/)
 - [Taking Black History Beyond February: 13 Picture Books and Young Adult Lit](https://colorfulpages.org/2020/03/16/taking-black-history-beyond-february-13-picture-books-and-young-adult-lit/)
 - [Your Kids Aren’t Too Young to Talk About Race: Resource Roundup](https://www.prettygooddesign.org/blog/Blog%20Post%20Title%20One-5new4)
