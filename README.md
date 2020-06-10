@@ -1,6 +1,6 @@
 # Black Lives Matter
 
-Here is my modest contribution to the "Black Lives Matter" movement. Here is a list of documents/videos/links for someone to get educated on Diversity, Torelance and understand that Black Lives really Matter. As a parent, I feel that my responsibility to educate my kids on the matter so they can help us build a better world.
+Here is my modest contribution to the "Black Lives Matter" movement. Here is a list of documents/videos/links for someone to get educated on Diversity, Torelance and understand that Black Lives really Matter. As a parent, my responsibility is to educate my kids on the matter so they can help us build a better world.
 
 - [Black Lives Matter](#black-lives-matter)
   - [More about the movement and why it is important](#more-about-the-movement-and-why-it-is-important)
